@@ -19,3 +19,7 @@ Seniow, Bautista
 Feldman, Ian
 
 Torre Vanoni, Bautista
+
+Verdu, Bruno Ezequiel
+
+
