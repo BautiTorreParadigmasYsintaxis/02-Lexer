@@ -20,6 +20,6 @@ Feldman, Ian
 
 Torre Vanoni, Bautista
 
-Verdu, Bruno Ezequiel
+Verdun, Bruno Ezequiel
 
 
